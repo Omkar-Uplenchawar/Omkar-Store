@@ -1,1 +1,2 @@
-Omkar's Store 
+Omkar's Store
+(Shop Smart, Live Stylish)
